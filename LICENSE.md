@@ -1,4 +1,4 @@
-# 
+# Updated ProtonVPN extensions for Mac OS | Instant ProtonVPN extensions for PC Windows. Featuring zero-day threat protection and vulnerability assessment — optimized for maximum performance on every platform.
 
 
 
